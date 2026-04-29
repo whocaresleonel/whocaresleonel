@@ -1,7 +1,7 @@
-## Hi there Im leonel 
+## Hi there I'm Leonel 
 
-# What i do?
-i develop as a joke and for fun 
+# What do I do?
+I develop as a joke and for fun 
 
 
 ###
